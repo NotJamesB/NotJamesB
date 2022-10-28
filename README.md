@@ -1,6 +1,6 @@
 - 🔭 Currently Seeking Work and Experience!
 - 🔨 Actively Crushing Bugs! 🐜
-- 🎮 Interests:
+- 🤔 Interests:
     -    Gaming 🎮
     -    Gym 🦾
     -    Game Development 🕹
